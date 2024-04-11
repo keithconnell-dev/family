@@ -1,2 +1,1 @@
-# multi-generational-family-site-
-meet generations of this loving family
+generational family-devoted site
